@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am and AIML student <br>i am woking on multiple things like gen ai web tech<br>i like gaming and vibe coding
+I am and AIML student <br>I like gaming and vibe coding
 
 
 ## 🌐 Socials:
