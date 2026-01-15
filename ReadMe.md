@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am and AIML student <br>I like gaming and vibe coding
+I am an AIML student <br>I like gaming and vibe coding
 
 
 ## 🌐 Socials:
